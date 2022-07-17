@@ -1,2 +1,2 @@
 # discord-hack
-allows user to access someone's discord account.
+you suck ass :D
